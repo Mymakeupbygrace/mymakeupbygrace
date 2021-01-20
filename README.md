@@ -1,2 +1,2 @@
-# mymakeupbygrace
+https://mymakeupbygrace.com 
 mymakeupbygrace-LLC
